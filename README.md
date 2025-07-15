@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **lesegoivsegows@gmail.com**
 
-- ⚡ Fun fact **Im a funny guy to be around,leave with a smile By just working with me. I got in to tech just to hack pubg and gain more UC. Found out i still have a long journey to do that.
+- ⚡ Fun fact **Im a funny guy to be around,leave with a smile By just working with me. I got in to tech just to hack pubg and gain more UC. Found out i still have a long journey to do that.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
